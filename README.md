@@ -28,6 +28,8 @@ Here are some of them:
 
 👉 Call on your government for action. Your business may also be able to help. Brainstorm within your organization for ways to help.
 
+👉 Attend all protests you can in your country. Governments are supposed to listen to the people. Control the narrative.
+
 👉 Avoid vague offers of help. Ukrainian people receive countless "how we can help?" requests. Understand that it's hard to reply now to blank requests. Be precise – ask where to donate, offer a place for Ukrainian refugees, etc.
 
 👉 Host Ukrainian refugees - mainly women and kids. Many of them are in Poland, Romania, Hungary, and Slovakia now. Create an Airbnb for refugees. Are there existing alternatives?
