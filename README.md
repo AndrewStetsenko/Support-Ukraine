@@ -16,6 +16,7 @@ Here's a brief list of actions you can take to support us:
 Here are some of them:
 - [Razom](https://razomforukraine.org)
 - [The fund of the National Bank of Ukraine](https://ukraine.ua/news/donate-to-the-nbu-fund/)
+- [Nova Ukraine](https://novaukraine.org/)
 
 👉 Support trusted international organizations. They definitely have a division working with Ukraine. For instance:
 
