@@ -1,23 +1,47 @@
 # Ways You Can Help Support Ukraine 🇺🇦
 
-I'm receiving a lot of messages from people in different countries asking how to help Ukraine. So in this GitHub repository, I've put together a list of practical steps you can take to support Ukraine and Ukrainians against the Russian invasion.
+GREETINGS FROM UKRAINE! 
+I'm receiving a lot of messages from people in different countries asking how to help us. So in this GitHub repository, I've put together a list of actions you can take to support Ukraine and Ukrainians against the Russian invasion.
 
-Remember that every little action counts.
+Remember that every little action counts!
 
-**Actionable steps**
+# Actionable Steps
 
-1.
-2.
-3.
-4.
-5.
-6.
-7.
-8.
-9.
-10.
-11.
-12.
+Here's a brief list of actions you can take to support us: 
+
+👉 Support Ukrainian businesses – pay invoices immediately; be patient if they are slow to reply, and do NOT sever relations with them.
+
+👉 Support local organizations that are helping the Ukrainian Army and people. There is a lot of buzz right now, so verify that they're legitimate or ask your Ukrainian friends/colleagues. Make sure the account you're sending money to accepts international currencies.
+
+Here are some of them:
+- [Razom](https://razomforukraine.org)
+- [The fund of the National Bank of Ukraine](https://ukraine.ua/news/donate-to-the-nbu-fund/)
+
+👉 Support trusted international organizations. They definitely have a division working with Ukraine. For instance:
+
+- [Ukrainian Red Cross Society](https://redcross.org.ua/en/donate)
+- [UNHCR (the UN Refugee Agency)](https://donate.unhcr.org/int/en/ukraine-emergency)
+- [Save the Children](https://www.savethechildren.org/us/where-we-work/ukraine)
+- [International Medical Corps](https://internationalmedicalcorps.org/updates/we-are-helping-people-affected-by-conflict-in-ukraine)
+
+👉 Check with the Ukrainian Embassy in your country to see what help is needed. They know.
+
+👉 Call on your government for action. Your business may also be able to help. Brainstorm within your organization for ways to help.
+
+👉 Avoid vague offers of help. Ukrainian people receive countless "how we can help?" requests. Understand that it's hard to reply now to blank requests. Be precise – ask where to donate, offer a place for Ukrainian refugees, etc.
+
+👉 Host Ukrainian refugees - mainly women and kids. Many of them are in Poland, Romania, Hungary, and Slovakia now. Create an Airbnb for refugees. Are there existing alternatives?
+
+👉 Call/text your Ukrainian friends and colleagues with positivity – "We're thinking about you," "We want to help," "We support you," etc. Your words are very important and they impact people more than you think. 
+
+👉 Follow news from trusted sources, [like this one](https://suspilne.media/211514-russia-invades-ukraine-live-updates-suspilne/). There's a lot of disinformation from Russian media. Most of their news media and channels are completely controlled by the government.
+
+👉 Publish photos/videos of anti-war demonstrations in your city/country on social media. We (Ukrainian people) must know that are not alone and have support. Share updates regarding your government’s support to Ukraine and the Ukrainian people and on social media.
+
+👉 Sign petitions to stop war. Here's [one of them](https://www.openpetition.eu/petition/online/people-around-the-world-ask-nato-to-close-the-airspace-over-ukraine).
+
+👉 Share this list of actionable steps with your friends.
+
 
 **Demonstrations in support of Ukraine**
 
