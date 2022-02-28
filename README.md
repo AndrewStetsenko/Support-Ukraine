@@ -34,6 +34,8 @@ Here are some of them:
 
 👉 Host Ukrainian refugees - mainly women and kids. Many of them are in Poland, Romania, Hungary, and Slovakia now. Create an Airbnb for refugees. Are there existing alternatives?
 
+https://news.airbnb.com/en-uk/support-for-refugees-fleeing-ukraine/ 
+
 👉 Call/text your Ukrainian friends and colleagues with positivity – "We're thinking about you," "We want to help," "We support you," etc. Your words are very important and they impact people more than you think. 
 
 👉 Follow news from trusted sources, [like this one](https://suspilne.media/211514-russia-invades-ukraine-live-updates-suspilne/). There's a lot of disinformation from Russian media. Most of their news media and channels are completely controlled by the government.
