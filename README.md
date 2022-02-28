@@ -1,4 +1,4 @@
-# Ways You Can Help Support Ukraine 🇺🇦
+# How to Help People in Ukraine 🇺🇦
 
 GREETINGS FROM UKRAINE! 
 I'm receiving a lot of messages from people in different countries asking how to help us. So in this GitHub repository, I've put together a list of actions you can take to support Ukraine and Ukrainians against the Russian invasion.
