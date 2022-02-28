@@ -11,7 +11,7 @@ Here's a brief list of actions you can take to support us:
 
 👉 Support Ukrainian businesses – pay invoices immediately; be patient if they are slow to reply, and do NOT sever relations with them.
 
-👉 Support local organizations that are helping the Ukrainian Army and people. There is a lot of buzz right now, so verify that they're legitimate or ask your Ukrainian friends/colleagues. Make sure the account you're sending money to accepts international currencies.
+👉 Support local organizations that are helping the Ukrainian people. There is a lot of buzz right now, so verify that they're legitimate or ask your Ukrainian friends/colleagues. Make sure the account you're sending money to accepts international currencies.
 
 Here are some of them:
 - [Razom](https://razomforukraine.org)
