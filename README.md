@@ -6,6 +6,19 @@ Remember that every little action counts.
 
 **Actionable steps**
 
+1.
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+12.
+
 **Demonstrations in support of Ukraine**
 
 ![alt tag](https://i0.wp.com/then24.com/wp-content/uploads/2022/02/1645997876_Mass-demonstrations-against-Russias-invasion-of-Ukraine-on-the-streets.jpg "Berlin")
