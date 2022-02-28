@@ -42,8 +42,8 @@ Here are some of them:
 
 👉 Share this list of actionable steps with your friends.
 
+# Demonstrations in Support of Ukraine
 
-**Demonstrations in support of Ukraine**
+![alt tag](https://i0.wp.com/then24.com/wp-content/uploads/2022/02/1645997876_Mass-demonstrations-against-Russias-invasion-of-Ukraine-on-the-streets.jpg "Berlin")<br>Berlin
 
-![alt tag](https://i0.wp.com/then24.com/wp-content/uploads/2022/02/1645997876_Mass-demonstrations-against-Russias-invasion-of-Ukraine-on-the-streets.jpg "Berlin")
-![alt tag](https://upload.wikimedia.org/wikipedia/commons/f/f5/Checking_out_the_pro-Ukraine_rally._%2851908557385%29.jpg "Toronto")
+![alt tag](https://upload.wikimedia.org/wikipedia/commons/f/f5/Checking_out_the_pro-Ukraine_rally._%2851908557385%29.jpg "Toronto")<br>Toronto
