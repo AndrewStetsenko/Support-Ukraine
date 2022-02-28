@@ -44,6 +44,14 @@ Here are some of them:
 
 # Demonstrations in Support of Ukraine
 
-![alt tag](https://i0.wp.com/then24.com/wp-content/uploads/2022/02/1645997876_Mass-demonstrations-against-Russias-invasion-of-Ukraine-on-the-streets.jpg "Berlin")<br>Berlin
+![alt tag](https://i.dailymail.co.uk/1s/2022/02/27/22/54714325-10557167-Thousands_gathered_in_front_of_Berlin_s_Brandenburg_Gate_on_Sund-a-180_1646000268472.jpg "Berlin")<br>Berlin, Germany 🇩🇪
 
-![alt tag](https://upload.wikimedia.org/wikipedia/commons/f/f5/Checking_out_the_pro-Ukraine_rally._%2851908557385%29.jpg "Toronto")<br>Toronto
+<br>![alt tag](https://upload.wikimedia.org/wikipedia/commons/f/f5/Checking_out_the_pro-Ukraine_rally._%2851908557385%29.jpg "Toronto")<br>Toronto, Canada 🇨🇦
+
+<br>![alt tag](https://dutchreview.com/wp-content/uploads/Dam-Sqaure-Protest-Ukraine-scaled-e1646035088685-696x546.jpg "Amsterdam")<br>Amsterdam, the Netherlands 🇳🇱
+
+<br>![alt tag](https://pbs.twimg.com/media/FMiHXtaXEAQKhE2.jpg "Tallinn")<br>Tallinn, Estonia 🇪🇪
+
+<br>![alt tag](https://s.iw.ro/gateway/g/ZmlsZVNvdXJjZT1odHRwJTNBJTJGJTJG/c3RvcmFnZTA0dHJhbnNjb2Rlci5yY3Mt/cmRzLnJvJTJGc3RvcmFnZSUyRjIwMjIl/MkYwMiUyRjI1JTJGMTQ2NzAwMV8xNDY3/MDAxX3Byb3Rlc3QtdGJpbGlzaS1mb3Rv/LXR3aXR0ZXItTWFyaWFtLUxla2lhc2h2/aWxpLmpwZyZoYXNoPWM3MDk0MGUyZWUxNzc4OTYzZTNiZGRmM2ZjNTU1MTcx.jpg "Tbilisi")<br>Tbilisi, Georgia 🇬🇪
+
+
