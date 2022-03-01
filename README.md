@@ -35,7 +35,6 @@ Here are some of them:
 
 👉 Host Ukrainian refugees - mainly women and kids. Many of them are in Poland, Romania, Hungary, and Slovakia now. Create an Airbnb for refugees. Are there existing alternatives?
 
-
 - https://news.airbnb.com/en-uk/support-for-refugees-fleeing-ukraine
 - https://airbnb.org/refugees
 
@@ -45,7 +44,10 @@ Here are some of them:
 
 👉 Publish photos/videos of anti-war demonstrations in your city/country on social media. We (Ukrainian people) must know that are not alone and have support. Share updates regarding your government’s support to Ukraine and the Ukrainian people and on social media.
 
-👉 Sign petitions to stop war. Here's [one of them](https://www.openpetition.eu/petition/online/people-around-the-world-ask-nato-to-close-the-airspace-over-ukraine).
+👉 Sign petitions to stop war. Here are some of them:
+
+- [People around the world ask NATO to close the airspace over Ukraine](https://www.openpetition.eu/petition/online/people-around-the-world-ask-nato-to-close-the-airspace-over-ukraine)
+- [Net Voyne](https://www.change.org/p/%D0%BE%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%B8%D1%82%D1%8C-%D0%B2%D0%BE%D0%B9%D0%BD%D1%83-%D1%81-%D1%83%D0%BA%D1%80%D0%B0%D0%B8%D0%BD%D0%BE%D0%B9-2ce0a2d7-b957-4e23-981a-c67a26e2b0b7?source_location=discover_feed&fbclid=IwAR0KX_xF7g5GvAeufL4wdiAnkCLEK0-ghPiZ8oFfOWvwveaO3ATMPBtcC0w) (in Russian for Russian citizens)
 
 👉 Share this list of actionable steps with your friends.
 
