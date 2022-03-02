@@ -65,4 +65,6 @@ Here are some of them:
 
 <br>![alt tag](https://gdb.voanews.com/c42c0000-0aff-0242-8170-08d9f85b193d_w1597_n_r1_st.jpg "Istanbul")<br>Istanbul, Turkey 🇹🇷
 
+<br>![alt tag](https://bordalo.observador.pt/v2/q:85/c:3000:2000:nowe:0:0/rs:fill:1440/f:webp/plain/https://s3.observador.pt/wp-content/uploads/2022/02/27184843/img-4272.jpeg "Portugal")<br>Lisbon, Portugal 🇵🇹
+
 
