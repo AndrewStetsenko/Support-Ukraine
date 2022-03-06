@@ -15,6 +15,7 @@ Here's a brief list of actions you can take to support us:
 
 Here are some of them:
 - [Razom](https://razomforukraine.org)
+- [Stetsenko Foundation](https://airtable.com/shrRVSZCNrCGQZCKt) (my personal fund)
 - [The fund of the National Bank of Ukraine](https://ukraine.ua/news/donate-to-the-nbu-fund/)
 - [Nova Ukraine](https://novaukraine.org/)
 
