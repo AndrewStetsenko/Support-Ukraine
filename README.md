@@ -28,7 +28,7 @@ Here are some of them:
 
 👉 Check with the Ukrainian Embassy in your country to see what help is needed. They know.
 
-👉 Call on your government for action. Your business may also be able to help. Brainstorm within your organization for ways to help.
+👉 Call on your government for action. [Your business may also be able to help](https://relocate.me/blog/support-ukraine/actions-your-company-can-take-to-help-ukrainians/). Brainstorm within your organization for ways to help.
 
 👉 Attend all protests you can in your country. Governments are supposed to listen to the people. Control the narrative.
 
